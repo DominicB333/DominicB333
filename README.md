@@ -6,7 +6,7 @@
 - 👯 I’m looking to collaborate on: HTML
 - 🤔 I’m looking for help with : HTML coding 
 - 💬 Ask me about: The Ottawa Senators 
-- 📫 How to reach me: Domincbarbesin@stu.ocsb.ca
+- 📫 How to reach me: Dominc.barbesin@stu.ocsb.ca
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I play hockey
 
